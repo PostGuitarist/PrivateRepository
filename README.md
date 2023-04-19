@@ -1,6 +1,6 @@
 # Private Repository
 
-### Why are you seing this?
+### Why are you seeing this?
 
 <br />
 
